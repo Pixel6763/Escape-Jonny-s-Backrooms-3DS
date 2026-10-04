@@ -11,3 +11,5 @@ Press L + R + Y + X for Impossible Mode!
 In Game: Dpad to move
 
 If you have any suggestions for updates or anything else about the game, DM me on discord: Pixel6763
+
+The Character Jonny is inspired by my friend and you should go support him by subscribing to his Youtube! https://www.youtube.com/@JonnysUniverse-p3ihttps://www.youtube.com/@JonnysUniverse-p3i
