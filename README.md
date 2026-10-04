@@ -8,7 +8,7 @@ Close Game: Start
 
 Press L + R + Y + X for Impossible Mode!
 
-In Game: Dpad to move
+In Game: Circle Pad and D-Pad to move
 
 If you have any suggestions for updates or anything else about the game, DM me on discord: Pixel6763
 
